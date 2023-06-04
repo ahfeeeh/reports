@@ -49,8 +49,17 @@ Enfim deixei games de lado, mas não abandonei
 E Pretendo continuar.
 
 Objetivo: Continuar a Aprender, Comemorar e Saborear Cada Música. Ter satisfação nisso que estou fazendo. É um Hobby, sempre será um Hobby.
+Quem me conhece das antigas, sabe que fui um atleta de fim de semana e digo que concerteza, não é a mesma satisfação do que acertar uma manobra muito difícil que alguem faz. E também não rola nenhum pouco de adrenalina. Porém a satisfação em tocar é muito grande. E é o que eu tenho para hoje.
+
 Sabe aquele sonho de tocar em uma banda e ser famoso: Nunca Tive. 
 Toco pra mim mesmo e estou muito feliz com isso. Já expliquei ali em cima porque posto os vídeos.
+
+Por fim, não vou me profissionalizar, vou tocar diante do tempo que tenho disponível e mais importante estou gostando muito.
+Acho que tenho obrigação de ser profissional apenas no meu trabalho, e e ele que coloca dinheiro para dentro de minha casa...
+
+Repetindo é Hobby.
+
+Acho que tudo ficou exclarecido,
 
 Alguns números:
 
