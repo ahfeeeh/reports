@@ -10,7 +10,7 @@ Em conjunto a isso sempre postei meus videos de guitarra no Kwai, Face, Insta e 
 Comecei com videos curtos 59 segundos, fui ganhando visualizações por aparecer nos Shorts ou Reels e Ganhando muitas views no Kwai logo de inicio.
 Resolvi me dedicar mais a guitarra.
 Meus vídeos foram ficando mais longos por ser capaz de tocar mais trechos, estar aprendendo mais.
-E não muito tempo depois em um mes 60 Mil visualizações no Kwai.
+E não muito tempo depois em um mes fechei 60 Mil visualizações no Kwai e contando...
 
 Aprendi Algumas coisas sobre vídeos na internet:
 
@@ -24,14 +24,16 @@ ENFIM , Não comprei guitarras caras para receber aprovações dos outros.
 Estou Postando pois é a melhor forma de me auxiliar e recordar as coisas que estou fazendo. 
 
 Um Video traz muitas informações: Como está fazendo, onde está errando, qual guitarra, qual distorção. Coisas impossiveis de guardar na memória.
-Não me dá trabalho algum fazer também e só tenho o trabalho de clicar em REC e STOP. Sim não edito vídeos. Tudo já sai pronto do meu PC.
-Apenas recupero caso tenha necessidade. de 584 vídeos apenas 1 recebeu ediçao porque deu pau.
+Não me dá trabalho algum fazer também e só tenho o trabalho de clicar em REC e STOP. 
+
+Sim não edito vídeos. Tudo já sai pronto do meu PC.
+Apenas recupero caso tenha necessidade. de 584 vídeos apenas 1 recebeu edição/reparo porque deu pau.
 
 Sem edições, mas porque?
 
 Ser autêntico e espontâneo.
 
-Não vejo problemas em errar e mostrar para os outros, ainda estou aprendendo. Quero mostrar que sou realmente eu e até inspirar outras pessoas a fazerem o mesmo.
+Não vejo problemas em errar e mostrar para os outros, ainda estou aprendendo. Quero mostrar quem sou realmente e até inspirar outras pessoas a fazerem o mesmo.
 Coisa rara hoje em dia, no Youtube só da RockStar ou Pessoas querendo ser melhor que os artistar originais. Eu sou contra isso ai.
 
 Voltando...
@@ -44,7 +46,10 @@ Vou tocar o que gosto, e quem curte tbm que seja feliz.
 Quer ouvir musica Pop , vai pro barzinho ou churrascaria.
 
 Enfim deixei games de lado, mas não abandonei
-E Pretendo cotinuar
+E Pretendo cotinuar.
+
+Objetivo: Continuar a Aprender, Comemorar e Saborear Cada Música. Ter satisfação nisso que estou fazendo. É um Hobby, sempre será um Hobby.
+Sabe aquele sonho de tocar em uma banda e ser famoso: Nunca Tive. Toco pra mim só mesmo e estou muito feliz com isso. Já expliquei ali em cima porque posto os vídeos.
 
 Alguns números:
 
