@@ -59,7 +59,7 @@ Acho que tenho obrigação de ser profissional apenas no meu trabalho, e e ele q
 
 Repetindo é Hobby.
 
-Acho que tudo ficou exclarecido,
+Acho que tudo ficou esclarecido,
 
 Alguns números:
 
