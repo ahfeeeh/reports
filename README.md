@@ -45,11 +45,12 @@ Enfim deixei games de lado, mas não abandonei
 E Pretendo cotinuar
 
 Alguns números:
-584 vídeos gravados
-Aprendeu e Gravou 40 músicas de 69.
-Youtube tem 22.493 visualizações até agora.
-Kwai tem 147.600 visualizações até agora.
-Contas bancárias e Cartões de crédito: ZERO.
+
+* 584 vídeos gravados
+* Aprendeu e Gravou 40 músicas de 69.
+* Youtube tem 22.493 visualizações até agora.
+* Kwai tem 147.600 visualizações até agora.
+* Contas bancárias e Cartões de crédito: ZERO.
 
 Musicas gravadas:
 - "18. Blackened - Metallica" 
