@@ -27,7 +27,7 @@ Um Video traz muitas informações: Como está fazendo, onde está errando, qual
 Não me dá trabalho algum fazer também e só tenho o trabalho de clicar em REC e STOP. 
 
 Sim não edito vídeos. Tudo já sai pronto do meu PC.
-Apenas recupero caso tenha necessidade. de 584 vídeos apenas 1 recebeu edição/reparo porque deu pau.
+Apenas recupero caso tenha necessidade. de 584 vídeos apenas um recebeu edição/reparo porque deu pau.
 
 Sem edições, mas porque?
 
@@ -46,10 +46,11 @@ Vou tocar o que gosto, e quem curte tbm que seja feliz.
 Quer ouvir musica Pop , vai pro barzinho ou churrascaria.
 
 Enfim deixei games de lado, mas não abandonei
-E Pretendo cotinuar.
+E Pretendo continuar.
 
 Objetivo: Continuar a Aprender, Comemorar e Saborear Cada Música. Ter satisfação nisso que estou fazendo. É um Hobby, sempre será um Hobby.
-Sabe aquele sonho de tocar em uma banda e ser famoso: Nunca Tive. Toco pra mim só mesmo e estou muito feliz com isso. Já expliquei ali em cima porque posto os vídeos.
+Sabe aquele sonho de tocar em uma banda e ser famoso: Nunca Tive. 
+Toco pra mim mesmo e estou muito feliz com isso. Já expliquei ali em cima porque posto os vídeos.
 
 Alguns números:
 
