@@ -1,7 +1,7 @@
 # reports #1 - 04-06-23
 
 ## Seis meses de canal, e o que você fez?
-Inicialmente a idéia e proposito dessa nova conta era apenas separar minha vida pessoal da profissional, sendo asssim determinei que iria fazer umas lives de videogames e prosperar com isso. Sim achei muito que iria prosperar apenas falando besteira e jogando jogos da moda. HIgar aquele GTA e chingar a mãe de todo mundo e receber uns trocos com isso.
+Inicialmente a idéia e proposito dessa nova conta era apenas separar minha vida pessoal da profissional, sendo asssim determinei que iria fazer umas lives de videogames e prosperar com isso. Sim achei muito que iria prosperar apenas falando besteira e jogando jogos da moda. Jogar aquele GTA e xingar a mãe de todo mundo e receber uns trocos com isso.
 Fui pra Twitch, Bati as metas iniciais fiz muito mais que 10 lives de no minimo 3 horas de duração. Alcancei 39 seguidores, 35 vieram do nada e ao mesmo tempo, sendo que 4 eu conheço pessoalemnte. Fui abaixando a frequencia de postagem e quando percebi 35 pessoas sumiram ao mesmo tempo...
 
 Em conjunto a isso sempre postei meus videos de guitarra no Kwai, Face, Insta e Youtube.
