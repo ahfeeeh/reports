@@ -12,8 +12,8 @@ E não muito tempo depois em um mes 60 Mil visualizações no Kwai.
 
 Aprendi Algumas coisas sobre vídeos na internet:
 
-Vídeos Longos: Ninguém liga. Ninguém clica, Ninguém vai até o final. Seu vídeo legal e maravilhoso em 1 semana no maximo alcançara 20 pessoas.
-Vídeos Curtos: Pode muito visualizar, ainda mais se você fizer coisa errada. 
+- Vídeos Longos: Ninguém liga. Ninguém clica, Ninguém vai até o final. Seu vídeo legal e maravilhoso em 1 semana no maximo alcançara 20 pessoas.
+- Vídeos Curtos: Pode muito visualizar, ainda mais se você fizer coisa errada. 
 30 segundos de Master of Puppets dá muito mais view que qualquer outra musica melhor tocada e inteira. Já testei.
 
 E o mais importante, a Pessoal que está no Face nao vai pro Youtube, o que está no Insta nao vai pro Face. Poste Diretamente no Perfil da Rede Social.
@@ -21,7 +21,7 @@ E o mais importante, a Pessoal que está no Face nao vai pro Youtube, o que est�
 ENFIM , Não comprei guitarras caras para receber aprovações dos outros.
 Estou Postando pois é a melhor forma de me auxiliar e recordar as coisas que estou fazendo. 
 
-1 Video traz muitas informações: Como está fazendo, onde está errando, qual guitarra, qual distorção. Coisas impossiveis de guardar na memória.
+Um Video traz muitas informações: Como está fazendo, onde está errando, qual guitarra, qual distorção. Coisas impossiveis de guardar na memória.
 Não me dá trabalho algum fazer também e só tenho o trabalho de clicar em REC e STOP. Sim não edito vídeos. Tudo já sai pronto do meu PC.
 Apenas recupero caso tenha necessidade. de 584 vídeos apenas 1 recebeu ediçao porque deu pau.
 
